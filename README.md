@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @anonf1-ghost
+- 📫 How to reach me pray u dont
